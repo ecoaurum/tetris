@@ -1,4 +1,4 @@
-// Ссылка на урок: https://www.youtube.com/watch?v=DjPShw9V66k&list=PL3LQJkGQtzc5LV6zPpPZJp1kMJGGBRrdw&ab_channel=GloAcademy
+
 
 
 
